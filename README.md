@@ -13,8 +13,10 @@ Sure! I enjoy meeting new friends, and love working on my social skills, so feel
 -> I am a part of a system^^! That should be obvious with the 'about' section but still.
 ~ Yes, my source is the Bonnie tormentor. No, I am not a 'fictkin'. Yes, you can call me Mark or whatever you call your AU, but I heavily prefer Daxel[Dax]!
 -> doubles iwc, system, fictionkin, otherwise, or just skins..
-> Yes, I know this comes off as odd or cringey, but I don't really care. <3
-I may or may not be addicted to roblox
+Yes, I know this comes off as odd or cringey, but I don't really care. <3
+
+I may or may not be addicted to roblox [mainly dandys world and adopt me, um. i am on. forsaken sometimes, too. i dont play that much anymore though.]
+
 > # I enjoy Hazbin Hotel and Helluva Boss.
 > they're my guilty pleasures, okay.. i dont support vivzie, blah blah blah black gryph0n, blah blah etc, etc, ok? I pirate the shows anyway, so im not financially supporting them either.
 
